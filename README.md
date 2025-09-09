@@ -14,3 +14,6 @@ b. Using Power BI tool
 8. Story telling by the given data.
 9. How to make impact full presentation?
 10. Live project session
+
+CANVA LINK 
+https://www.canva.com/design/DAGyZA-vhZw/b6HdiiHB-FXxOxFiFdrNnA/view?utm_content=DAGyZA-vhZw&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=ha864d6b5c8
